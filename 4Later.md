@@ -16,4 +16,6 @@ https://github.com/mdsantia/Rubik-s-Cube-Group-Theory
 
 ![Imagem do WhatsApp de 2025-11-01 à(s) 23 46 15_d0a07ff1](https://github.com/user-attachments/assets/9a41a4b4-6f79-42fc-bacc-f081d175c65d)
 
+<img width="845" height="304" alt="image" src="https://github.com/user-attachments/assets/90355821-8744-4871-aa80-550d94040d8f" />
 
+https://www.gancube.com/3x3x3-cfop-guide-of-gancube
